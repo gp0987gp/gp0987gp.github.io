@@ -1,0 +1,11 @@
+No coração da vastidão de um mundo marcado pela escuridão, as sombras dançam e os ventos sussurram lendas antigas. Este é um mundo onde a luz da aurora nunca chegou a brilhar plenamente, e onde a noite se estende sem fim. Um reino de incertezas, onde a política e o destino são definidos pelas ações de poderosas famílias que controlam seus próprios domínios. O equilíbrio entre essas famílias, longe de ser pacífico, é constantemente testado por disputas silenciosas, intrigas de corte e o jogo mortal de ambições que atravessam continentes.
+
+Cada grande território deste mundo é governado por uma família distinta, cujos laços de sangue e vontade são entrelaçados com as forças que regem as próprias terras. Cada família possui um poder único, seja ele manifestado através do comando de exércitos, habilidades místicas, ou o domínio das sombras. O mundo é dividido em continentes, e cada um deles é governado por uma dessas famílias, que molda a cultura, a política e a economia dentro de suas fronteiras.
+
+Nas vastas terras do norte, onde a neve eternamente cobre a terra, os reinos são marcados pela honra das batalhas e pela força de suas linhas sanguíneas. No sul, onde os climas mais quentes forjam povos resilientes, a ambição e o comércio são as armas que se empunham. Ao leste, uma vasta e intrincada rede de alianças místicas e espíritos antigos mantém seu próprio equilíbrio, enquanto o oeste permanece enredado por disputas ideológicas e ambições sobre o futuro do mundo.
+
+Em um lugar como esse, onde alianças podem se formar e se desintegrar em um suspiro, as famílias que governam cada pedaço de terra trazem consigo tanto grandes promessas quanto terríveis maldições. O que está em jogo não são apenas as terras que governam, mas o próprio futuro de um mundo que se vê à beira do caos.
+
+A escuridão nunca deixará este mundo, mas será que ele será governado pela luz do sangue ou pelo véu das sombras? Aqui, a verdadeira natureza do poder se revela, e aqueles que buscam a glória, o domínio ou até mesmo a destruição, devem ser imortais em espírito ou em nome. O jogo das famílias nunca cessará, e sua luta por controle, por sobrevivência, moldará o destino de todos.
+
+Bem-vindo às Crônicas da Noite Eterna.

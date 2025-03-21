@@ -1,0 +1,2 @@
+Feralorn (Bárbaro)
+Os guerreiros de Feralorn são a personificação da força bruta e do instinto selvagem. Eles vivem para a batalha, dominando armas pesadas e técnicas de combate corpo a corpo, canalizando sua fúria para esmagar qualquer oponente.

@@ -1,0 +1,2 @@
+Baskerville (Espadachim)
+Os guerreiros de Baskerville são mestres na arte da lâmina, combinando técnica e velocidade para superar seus inimigos. Seu treinamento rigoroso permite que se especializem em duelos refinados ou adotem uma abordagem mais arcana e mágica.

@@ -1,0 +1,2 @@
+Silentblade (Assassino)
+Nas sombras, os assassinos de Silentblade espreitam suas presas, atacando com letalidade e discrição. Mestres do veneno e da furtividade, eles são implacáveis em sua busca por alvos, eliminando qualquer obstáculo em seu caminho.

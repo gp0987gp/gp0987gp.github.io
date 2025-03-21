@@ -1,0 +1,2 @@
+Skythorn (Arqueiro)
+Guerreiros natos do arco e flecha, os arqueiros de Skythorn são caçadores e atiradores habilidosos, capazes de eliminar inimigos antes mesmo de serem detectados. Suas especializações variam desde precisão mortal até conexão mística com a floresta.
