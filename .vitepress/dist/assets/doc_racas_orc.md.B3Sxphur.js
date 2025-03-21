@@ -1,0 +1,1 @@
+import{_ as a,c as e,o as c}from"./chunks/framework.Dh1jimFm.js";const m=JSON.parse('{"title":"","description":"","frontmatter":{},"headers":[],"relativePath":"doc/racas/orc.md","filePath":"doc/racas/orc.md"}'),r={name:"doc/racas/orc.md"};function t(o,s,n,d,p,_){return c(),e("div")}const f=a(r,[["render",t]]);export{m as __pageData,f as default};

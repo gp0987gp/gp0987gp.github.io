@@ -1,0 +1,1 @@
+import{_ as e,c as a,o as t}from"./chunks/framework.Dh1jimFm.js";const p=JSON.parse('{"title":"","description":"","frontmatter":{},"headers":[],"relativePath":"doc/racas/meio-slime.md","filePath":"doc/racas/meio-slime.md"}'),o={name:"doc/racas/meio-slime.md"};function s(c,r,i,m,n,d){return t(),a("div")}const _=e(o,[["render",s]]);export{p as __pageData,_ as default};
